@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **aakankshasingh221@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GiWe4Kv7_lR9eg5iu07oUqFOF00RuvVl/view?usp=drive_link](https://drive.google.com/file/d/1GiWe4Kv7_lR9eg5iu07oUqFOF00RuvVl/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_DuLDEtCiJYsQbHDTFWEFs9YcnyG2Boo/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
